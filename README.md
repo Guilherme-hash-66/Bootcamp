@@ -27,3 +27,4 @@ Agradecemos à DIO.ME pelo suporte e pela oportunidade de desenvolver este proje
 
 ## Link para o eBook
 https://gamma.app/docs/Dominando-os-Tempos-Verbais-Perfeitos-em-Ingles-5obsd1vw17nejd7
+https://drive.google.com/file/d/11glRzPSqxT-xX4VhWcCExO6leMJ0pAa1/view?usp=sharing
