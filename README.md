@@ -26,4 +26,4 @@ O projeto resultou em um eBook resumido e objetivo com informativo e visual atra
 Agradecemos à DIO.ME pelo suporte e pela oportunidade de desenvolver este projeto.
 
 ## Link para o eBook
-Dominando-os-Tempos-Verbais-Perfeitos-em-Ingles.pdf
+https://gamma.app/docs/Dominando-os-Tempos-Verbais-Perfeitos-em-Ingles-5obsd1vw17nejd7
